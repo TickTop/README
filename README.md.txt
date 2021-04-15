@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Richard Meng @TickTop
+- 👀 I’m interested in everything.
+- 🌱 I’m currently learning everything.
+- 💞️ I’m looking for freeeedommmmm.
+- 📫 How to reach me? Drop a line here and make a commit.
